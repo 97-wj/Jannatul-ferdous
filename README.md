@@ -27,8 +27,8 @@ I am a passionate and hardworking undergraduate Computer Science student at AIUB
 
 ## 📫 Let's Connect:
 - LinkedIn: [linkedin.com/in/jannatul-ferdous](#)
-- Email: your.email@gmail.com
-- Portfolio: [your-portfolio-link.com](#)
+- Email: jannatjf3268031@gmail.com
+- 
 
 ---
 
